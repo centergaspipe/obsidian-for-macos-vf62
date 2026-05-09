@@ -1,4 +1,4 @@
-
+Get the ultimate Obsidian for macOS macro with Obsidian for macOS premium Macro: note encryption & dark mode. Featuring note encryption and dark mode, it's the best choice for
 
 
 
